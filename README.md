@@ -1,6 +1,6 @@
-# yuriki-osu-skin
-# [404 SkinNotFound v2](https://joofixd.s-ul.eu/qJvJfrBh)
-![](https://osu.ppy.sh/ss/13421939/f368)
+# yuriki-used-osu-skin
+# [- !Yuri ✗ Bubbleman](https://joofixd.s-ul.eu/qJvJfrBh)
+![](https://osu.ppy.sh/ss/13482924/c0c9)
 
 # [doomsday 2.7](https://joofixd.s-ul.eu/JApkCq2x)
 # [Doomsday 2.7](https://joofixd.s-ul.eu/JApkCq2x)
