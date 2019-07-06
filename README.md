@@ -6,5 +6,5 @@
 # [- !Yuri ✗ ensalada](https://yurikiosu.s-ul.eu/0Wdhq4ag)
 ![](https://osu.ppy.sh/ss/13482917/894f)
 
-# [- !Yuri ✗ Varvalian](https://joofixd.s-ul.eu/1ID048e5)
+# [- !Yuri ✗ Varvalian](https://yurikiosu.s-ul.eu/PXgbquni)
 ![](https://osu.ppy.sh/ss/13482922/3b77)
