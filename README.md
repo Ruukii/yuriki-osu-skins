@@ -1,5 +1,5 @@
 # yuriki-used-osu-skin
-# [- !Yuri ✗ Bubbleman](https://joofixd.s-ul.eu/qJvJfrBh)
+# [- !Yuri ✗ Bubbleman](https://yurikiosu.s-ul.eu/MpXKViDo)
 ![](https://osu.ppy.sh/ss/13482924/c0c9)
 
 # [- !Yuri ✗ ensalada](https://joofixd.s-ul.eu/JApkCq2x)
