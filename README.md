@@ -1,0 +1,1 @@
+# yuriki-osu-skin
