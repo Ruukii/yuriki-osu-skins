@@ -1,4 +1,4 @@
-# yuriki-used-osu-skin
+# yuriki used osu skin
 # click on the skin name to install
 # [- !Yuri ✗ Bubbleman](https://yurikiosu.s-ul.eu/MpXKViDo)
 ![](https://osu.ppy.sh/ss/13482924/c0c9)
