@@ -9,3 +9,6 @@
 
 # [- !Yuri ✗ Varvalian](https://yurikiosu.s-ul.eu/PXgbquni)
 ![](https://osu.ppy.sh/ss/13482922/3b77)
+
+# [- !Yuri ✗ elohere](https://s.put.re/69ud583X.osk)
+![](https://i.imgur.com/JS9OPkn.jpg)
