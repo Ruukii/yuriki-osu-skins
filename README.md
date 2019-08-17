@@ -1,5 +1,5 @@
-HI Welcome to my skins compilation
-Here's are the list of skins that I used:
+#Hi Welcome to my skins compilation
+#Here's are the list of skins that I used:
 # [- !Yuri ✗ Bubbleman](https://yurikiosu.s-ul.eu/MpXKViDo)
 ![](https://osu.ppy.sh/ss/13482924/c0c9)
 
