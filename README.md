@@ -1,6 +1,6 @@
 # Hi, Welcome to my skins compilation
-# Here's are the list of skins that I used:
 # Click on the skin name to install
+# Here's are the list of skins that I used
 # [- !Yuri ✗ Bubbleman](https://s.put.re/uU3hgZBj.osk)
 ![](https://osu.ppy.sh/ss/13482924/c0c9)
 
