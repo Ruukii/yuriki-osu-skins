@@ -1,7 +1,7 @@
 # Hi, uwu
 # Here's are the list of skins that I used
 Click on the skin name to install
-# [- !Yuri ✗ Colorful 1.5]()
+# [- !Yuri ✗ Colorful 1.5](https://www.dropbox.com/s/abt4zqagiog3cb4/-%20%21Yuri%20%E2%9C%97%20Colorful%201.5.osk?dl=0)
 ![](https://osu.ppy.sh/ss/16708081/cc52)
 #[- !Yuri ✗ カラフルColorful015](https://www.dropbox.com/s/s50fy7l6o2xlcaj/-%20!Yuri%20✗%20カラフルColorful015.osk?dl=0)
 ![](https://i.imgur.com/ArxUsTvm.jpg)
