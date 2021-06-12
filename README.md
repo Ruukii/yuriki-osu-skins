@@ -1,6 +1,10 @@
 # Hi, uwu
 # Here's are the list of skins that I used
 Click on the skin name to install
+# [- !Yuri ✗ Colorful 1.5]()
+![](https://osu.ppy.sh/ss/16708081/cc52)
+#[- !Yuri ✗ カラフルColorful015](https://www.dropbox.com/s/s50fy7l6o2xlcaj/-%20!Yuri%20✗%20カラフルColorful015.osk?dl=0)
+![](https://i.imgur.com/ArxUsTvm.jpg)
 # [MonkoEdit (Rektygon)](https://www.dropbox.com/s/yuie5cfbliorupp/MonkoEdit.osk?dl=0)
 ![](https://i.imgur.com/w7yn7GT.png)
 # [- yuriki speed skin v2 - ](https://www.dropbox.com/s/g1wq6w6jjh2n5th/-%20yuriki%20speed%20skin%20v2%20-.osk?dl=0)
