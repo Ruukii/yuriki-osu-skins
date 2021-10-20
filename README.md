@@ -1,6 +1,10 @@
 # Hi, uwu
 # Here's are the list of skins that I used
 Click on the skin name to install
+# [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
+![](https://osu.ppy.sh/ss/11966641)
+# [yuriki vtuber mix](https://yurikiosu.s-ul.eu/qDhF1GGv)
+![](https://i.imgur.com/sfNca58.jpeg)
 # [- !Yuri ✗ Varvalian](https://www.dropbox.com/s/14q5uw4z25bmfsf/-%20%21Yuri%20%E2%9C%97%20Varvalian.osk?dl=0)
 ![](https://i.imgur.com/T3skXCM.jpeg)
 # [- !Yuri ✗ Colorful 1.5](https://www.dropbox.com/s/abt4zqagiog3cb4/-%20%21Yuri%20%E2%9C%97%20Colorful%201.5.osk?dl=0)
