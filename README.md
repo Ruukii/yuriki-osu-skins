@@ -1,6 +1,7 @@
 # Hi, uwu
 # Here's are the list of skins that I used
 Click on the skin name to install
+not 100% up to date list.
 # [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://osu.ppy.sh/ss/11966641)
 # [yuriki vtuber mix](https://yurikiosu.s-ul.eu/qDhF1GGv)
