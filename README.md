@@ -3,6 +3,8 @@
 Click on the skin name to install
 
 might not be 100% up to date list.
+# [-yurikistolefromryan](https://www.mediafire.com/file/y30dpe3spuvbcbq/-+yurikistolefromryan.osk/file)
+![]will add later
 # [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://osu.ppy.sh/ss/11966641)
 # [yuriki vtuber mix](https://yurikiosu.s-ul.eu/qDhF1GGv)
