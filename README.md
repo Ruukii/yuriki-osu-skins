@@ -3,7 +3,7 @@
 Click on the skin name to install
 
 might not be 100% up to date list.
-# [-yurikistolefromryan](https://www.mediafire.com/file/y30dpe3spuvbcbq/-+yurikistolefromryan.osk/file)
+# [- yurikistolefromryan](https://www.mediafire.com/file/y30dpe3spuvbcbq/-+yurikistolefromryan.osk/file)
 ![](https://i.imgur.com/eXSWrtG.jpeg)
 # [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://osu.ppy.sh/ss/11966641)
