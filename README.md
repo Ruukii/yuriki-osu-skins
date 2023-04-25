@@ -3,6 +3,8 @@
 Click on the skin name to install
 
 might not be 100% up to date list.
+# [- yuriki aim skin 2023](https://www.dropbox.com/s/66xhelkduc7oegv/-%20yuriki%20aim%20skin%202023.osk?dl=0)
+![](https://i.imgur.com/zXqfTYx.jpeg)
 # [- yurikistolefromryan](https://www.mediafire.com/file/y30dpe3spuvbcbq/-+yurikistolefromryan.osk/file)
 ![](https://i.imgur.com/eXSWrtG.jpeg)
 # [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
